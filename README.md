@@ -1,6 +1,7 @@
+![SECITI](http://innovationmatchmx.com/wp-content/uploads/2015/10/SECITI.jpg)
 # Servicio social
-## Tareas y ejercicios de la SECITI
-## Por López Romero Carlos
+### Tareas y ejercicios de la SECITI
+### Por López Romero Carlos
 
 <br/>
 
